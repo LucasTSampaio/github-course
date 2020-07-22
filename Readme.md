@@ -8,3 +8,5 @@ Saiba mais no em [google.com](http://www.google.com)
 
 Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido (:
 
+
+Bons estudos!
